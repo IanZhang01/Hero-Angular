@@ -1,1 +1,1 @@
-practice Demo Hero. ＴＥＳＴ
+practice Demo Hero.
